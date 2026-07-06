@@ -1,4 +1,4 @@
-# 
+# مميز Binance bot العقود المستقبلية إعدادات مسبقة for Mac OS | نخبة Binance bot العقود المستقبلية إعدادات مسبقة for PC Windows. Featuring تحليل الزخم and واجهة برمجة التطبيقات للتبادل المركزي — optimized for maximum performance.
 
 
 
